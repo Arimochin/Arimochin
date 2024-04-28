@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+  ☺ Hi! My name is Sofi, i'm from Argentina and i'm studyng Systems Engineering at the UNICEN (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧  
 <!--
 **Arimochin/Arimochin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
